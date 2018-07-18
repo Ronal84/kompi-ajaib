@@ -1,0 +1,2 @@
+# kompi-ajaib
+kompisafelink2
